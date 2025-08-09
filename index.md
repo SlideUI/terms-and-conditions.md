@@ -1,6 +1,6 @@
 # Terms & Conditions
 
-_Last Updated: 9 August 2025_  
+_Last Updated: July 2025_  
 **Company:** Dose Creative Pty Ltd  
 **Trading As:** Designer’s System  
 **Owner:** Rhys Wilson  
